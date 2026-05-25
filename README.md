@@ -1,5 +1,5 @@
 <div align="center">
- <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=NagiReos&extraCount=200810&color=D3D3D3&labelColor=ffffff"><img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=KaoAns&extraCount=316202&color=FFFFFf&labelColor=D3D3D3">
+ <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Mellos&extraCount=200810&color=D3D3D3&labelColor=ffffff"><img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=Nears&extraCount=316202&color=FFFFFf&labelColor=000000">
 
  <div align="left">                                                                                                                                          
 <div align="center">
