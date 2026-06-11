@@ -10,4 +10,4 @@
  <div align="left">                                                                                                                                          
 <div align="center">
 <p float="left">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled174_20260526035318.png" width="900" />
+  <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_8925.jpeg" width="900" />
