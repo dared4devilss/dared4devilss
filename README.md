@@ -10,7 +10,7 @@
 </p>
  <div align="left">                                                                                                                                          
 <div align="center">
- OH ILL GET THE BALL ALRIGHT IN THE ONLY WAY I KNOW HOW..the way my boyfriend does it..nagi..do you see me..?
+ OH ILL GET THE BALL ALRIGHT IN THE ONLY WAY I KNOW HOW..the way that my boyfriend does it..heh..nagi..do you see me..?
 <p float="left">
   <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_9085.jpeg" width="400" />
 
