@@ -20,5 +20,4 @@
    <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_9096.jpeg" width="1000" />
    <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_9227.jpeg" width="1000" />
    <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_9365.jpeg" width="1000" />
-   <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_9292.jpeg" width="1000" />
    <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_9379.jpeg" width="1000" />
