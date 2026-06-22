@@ -6,9 +6,6 @@
  https://vt.tiktok.com/ZSQTQbj3y/
  
 <p float="left">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_9085.jpeg" width="400" />
-
- 
    <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_9057.jpeg" width="700" />
    <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_9096.jpeg" width="700" />
    <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_9227.jpeg" width="700" />
