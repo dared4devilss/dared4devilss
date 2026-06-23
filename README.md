@@ -8,4 +8,4 @@
 <p float="left">
    <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled182_20260605214314.png" width="1000" />
   
- [GUYS LETS HEAR IT OUT FOR THE PROUD GAY KEI !!!](https://1loyd.carrd.co)
+GUYS LETS HEAR IT OUT FOR THE PROUD GAY [ KEI!!!](https://github.com/DYN4MIGHT)
