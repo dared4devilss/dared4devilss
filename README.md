@@ -4,8 +4,7 @@
  <div align="left">                                                                                                                                          
 <div align="center">
 https://vt.tiktok.com/ZSCdVSCuY/
- 
+
+ lovemail wip 
 <p float="left">
-   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled182_20260605214314.png" width="1000" />
-  
-GUYS LETS HEAR IT OUT FOR THE PROUD GAY [ KEI!!!](https://github.com/DYN4MIGHT)
+   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled207_20260625214842.png" width="200" /><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled207_20260625225334.png" width="200" />   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled207_20260625220213.png" width="200" />
