@@ -7,6 +7,6 @@ https://vt.tiktok.com/ZSCdVSCuY/
 
  lovemail wip 
 <p float="left">
-   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled207_20260625214842.png" width="200" /><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled207_20260625231556.png" width="200" />   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled207_20260625220213.png" width="200" />
+ <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled207_20260626134315.png" width="200" />  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled207_20260625214842.png" width="200" /><img src="https://file.garden/aeU00LX7giXAZivJ/Untitled207_20260626134808.png" width="200" />   <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled207_20260625220213.png" width="200" />
 
-   hi sunny hai joaan hello casket
+ konnichiwa kei hi sunny hai joaan hello casket
