@@ -1,6 +1,6 @@
 
 <div align="center">
- <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=poopfaces&extraCount=12902&color=FFFFFf&labelColor=ffff">
+ <img src="https://hits.sh/github.com/KA0RUSURFING.svg?style=flat-square&label=poopfaces&extraCount=12902&color=FFFFFf&labelColor=492d1d">
  <div align="left">                                                                                                                                          
 <div align="center">
 https://vt.tiktok.com/ZSCdVSCuY/
