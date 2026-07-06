@@ -7,6 +7,6 @@
 
  
 <p float="left">
- <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled214_20260628220010.png" width="1000" />  
+ <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_8962.jpeg" width="1000" />  
  ts a chokehold
 
