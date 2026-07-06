@@ -8,5 +8,6 @@
  
 <p float="left">
  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled229_20260706193306.png" width="1000" />  
-  wip gon last 7 days or sum
+ https://rentry.co/kagereos
+  wip gon last 80 days or sum
 
