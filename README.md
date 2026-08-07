@@ -1,12 +1,8 @@
 
 <div align="center">
- <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Chameleons&extraCount=29024&color=FFFFFf&labelColor=B594D1">
+ <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Chameleons&extraCount=9024&color=FFFFFf&labelColor=B594D1">
  <div align="left">                                                                                                                                          
 <div align="center">
-<img src="https://file.garden/aeU00LX7giXAZivJ/Untitled208_20260702225511.png" width="2000" />  
-
+<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_1231.jpeg" width="500" />  
  
-<p float="left">
- <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_8962.jpeg" width="1000" />  
- ts a chokehold
-
+ayooo 😂
