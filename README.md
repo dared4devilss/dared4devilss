@@ -5,4 +5,4 @@
 <div align="center">
 <img src="https://file.garden/aeU00LX7giXAZivJ/IMG_1231.jpeg" width="500" />  
  
-ayooo 😂
+ayooo ahahah get a room the fuh lmaoao😂
