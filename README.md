@@ -9,12 +9,12 @@
     <td>
       <details>
 <summary>lmao </summary>
-<a href="https://file.garden/aeU00LX7giXAZivJ/Untitled377_20260917234127.png" target="_blank">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled377_20260917234127.png" alt="Button Description" width="250" height="auto" />
 <a href="https://file.garden/aeU00LX7giXAZivJ/image.png" target="_blank">
   <img src="https://file.garden/aeU00LX7giXAZivJ/image.png" alt="Button Description" width="200" height="auto" />
+ <a href="https://file.garden/aeU00LX7giXAZivJ/Untitled390_20260927065228.jpeg" target="_blank">
+  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled390_20260927065228.jpeg" alt="Button Description" width="200" height="auto" />
   </a>
   <br />
-  <span>ok so like tbh do better in uh.. NOT copying yeah..?<br> got a lil second hand embarrassment too cuz omg its so obvious</span>
+  <span>ok so like tbh do better in uh.. NOT copying yeah..?<br>i haven’t even played this game for half a year and i got skin stolen TWICE</span>
 </div> 
 </a> ‎<br>
