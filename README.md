@@ -1,5 +1,5 @@
 <div align="center">
- <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=Chameleons&extraCount=9024&color=FFFFFf&labelColor=472e53">
+ <img src="https://hits.sh/github.com/dared4devilss.svg?style=flat-square&label=jerked+on+my+trades&extraCount=9024&color=FFFFFf&labelColor=000000">
  <div align="left">                                                                                                                                          
 <div align="center">
 <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled421_20261027233331.png" width="1000" />  
