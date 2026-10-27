@@ -7,14 +7,18 @@
   <tr>
     <td>
       <details>
-<summary>lmao </summary>
+<summary>woah hi </summary>
 <a href="https://file.garden/aeU00LX7giXAZivJ/image.png" target="_blank">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/image.png" alt="Button Description" width="200" height="auto" />
- <a href="https://file.garden/aeU00LX7giXAZivJ/Untitled390_20260927065228.jpeg" target="_blank">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/Untitled390_20260927065228.jpeg" alt="Button Description" width="200" height="auto" />
+  <img src="https://file.garden/aeU00LX7giXAZivJ/20260811_230056.jpeg" alt="Button Description" width="200" height="300" />
+ <a href="https://file.garden/aeU00LX7giXAZivJ/image.png" target="_blank">
+  <img src="https://file.garden/aeU00LX7giXAZivJ/20260811_230219.jpeg" alt="Button Description" width="200" height="300" />
+  <a href="https://file.garden/aeU00LX7giXAZivJ/image.png" target="_blank">
+  <img src="https://file.garden/aeU00LX7giXAZivJ/20260811_235136.jpeg" alt="Button Description" width="200" height="300" />
+ <a href="https://file.garden/aeU00LX7giXAZivJ/20260811_230056.jpeg" target="_blank">
+  <img src="https://file.garden/aeU00LX7giXAZivJ/20260811_225714.jpeg" alt="Button Description" width="200" height="300" />
   </a>
   <br />
-  <span>ok so like tbh do better in uh.. NOT copying yeah..?<br>i haven’t even played this game for half a year and i got skin stolen TWICE</span>
+  <span>happy birthday my goat 08/12/26</span>
 </div> 
 </a> ‎<br>
  
