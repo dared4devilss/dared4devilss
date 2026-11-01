@@ -7,18 +7,12 @@
   <tr>
     <td>
       <details>
-<summary>woah hi </summary>
+<summary>small dni</summary>
 <a href="https://file.garden/aeU00LX7giXAZivJ/image.png" target="_blank">
   <img src="https://file.garden/aeU00LX7giXAZivJ/20260811_230056.jpeg" alt="Button Description" width="200" height="300" />
- <a href="https://file.garden/aeU00LX7giXAZivJ/image.png" target="_blank">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/20260811_230219.jpeg" alt="Button Description" width="200" height="300" />
-  <a href="https://file.garden/aeU00LX7giXAZivJ/image.png" target="_blank">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/20260811_235136.jpeg" alt="Button Description" width="200" height="300" />
- <a href="https://file.garden/aeU00LX7giXAZivJ/20260811_230056.jpeg" target="_blank">
-  <img src="https://file.garden/aeU00LX7giXAZivJ/20260811_225714.jpeg" alt="Button Description" width="200" height="300" />
   </a>
   <br />
-  <span>happy birthday my goat 08/12/26</span>
+  <span>  <span>basic dni, dni 14 below, ex friends im in bad terms with, heavy moodswingers, systems (personal experience ok i dont dislike sys ppl) narcissists, ppl who make fun of others and excusing it by saying theyre sadistic, friends of ex friends, people who hold grudges for way to long and makes no effort to make up (if u dont fall onto my dni/iwc then int freely and openly)</span>
 </div> 
 </a> ‎<br>
  
