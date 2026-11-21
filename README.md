@@ -13,4 +13,4 @@
   ${{\color{#629E9E}꒱ა }}$ 
 </p>
 
-<img width="700" height="900" alt="Image" src="https://files.catbox.moe/z8h0yp.png" />
+<img width="700" height="900" alt="Image" src="https://file.garden/awHzX9qpA0zRQMqF/IMG_7427.png" />
