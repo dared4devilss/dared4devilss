@@ -12,3 +12,5 @@
   <a href="https://en.pronouns.page/@cythwo">ᴘʀɴꜱ</a>
   ${{\color{#629E9E}꒱ა }}$ 
 </p>
+
+<img width="800" height="1100" alt="Image" src="https://files.catbox.moe/z8h0yp.png" />
