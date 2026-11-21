@@ -5,10 +5,10 @@
 
 <p align ="center">
  ${{\color{#629E9E} ૮꒰}}$ 
-   <a href="https://rentry.co/pixiliated">ʀᴇɴᴛʀʏ</a>
+   <a href="https://cythwobyi.straw.page/">ʙʏɪ</a>
  ${{\color{#629E9E} .☽༊˚ }}$
-   <a href="https://fluxarataa.atabook.org">ᴀᴛᴀʙᴏᴏᴋ</a>
+   <a href="https://cythwo.atabook.org/">ᴀᴛᴀ</a>
  ${{\color{#629E9E} .☽༊˚ }}$
-  <a href="https://sk8rslight.straw.page">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>
+  <a href="https://en.pronouns.page/@cythwo">ᴘʀɴꜱ</a>
   ${{\color{#629E9E}꒱ა }}$ 
 </p>
