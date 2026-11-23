@@ -1,6 +1,5 @@
 <div align="center">
-<img src="https://file.garden/awHzX9qpA0zRQMqF/IMG_7387.jpeg" width=“20" />
-<img src="https://file.garden/awHzX9qpA0zRQMqF/IMG_7436.jpeg" width=“20" />
+<img src="https://file.garden/aeU00LX7giXAZivJ/IMG_7518.gif" width="1000" alt="Alt Text">
 
 bmf pls i like people
 
